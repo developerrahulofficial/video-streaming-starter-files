@@ -1,3 +1,7 @@
-# Create this beautiful layout
+# JuhiFlix Create this beautiful layout
 
-![](https://github.com/nunatass/animated-gradients/blob/main/public/Screenshot%202024-05-26%20at%2023.25.28.png?raw=true)
+
+
+
+https://github.com/developerrahulofficial/video-streaming-starter-files/assets/83329806/2028f33f-04af-4c98-a872-f70c6a6a15fa
+
