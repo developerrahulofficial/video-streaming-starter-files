@@ -1,7 +1,4 @@
 # JuhiFlix Create this beautiful layout
 
 
-
-
-https://github.com/developerrahulofficial/video-streaming-starter-files/assets/83329806/2028f33f-04af-4c98-a872-f70c6a6a15fa
-
+![Screenshot 2024-05-29 125703](https://github.com/developerrahulofficial/video-streaming-starter-files/assets/83329806/e5f9041c-b4f5-408b-9fbd-d41420bfc234)
